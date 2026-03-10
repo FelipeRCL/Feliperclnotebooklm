@@ -13,3 +13,4 @@ São propostas estratégias práticas de acumulação de riqueza, incluindo o us
 Além do foco técnico, a obra reflete sobre a economia da felicidade, defendendo que o bem-estar real advém das relações sociais e de um estilo de vida equilibrado.
 
 O conteúdo buscado, na última análise, transforma o leitor em um investidor consciente capaz de navegar por crises e garantir segurança financeira a longo prazo.
+Acesse o NotebookLM: https://notebooklm.google.com/notebook/70d67769-8f97-42b9-bbc7-f1056786b763
